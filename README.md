@@ -1,2 +1,2 @@
 # Mi portafolio Personal
-está un poco desactualizada
+está un poco desactualizado
